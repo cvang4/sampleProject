@@ -6,7 +6,7 @@ This testing is for educational purposes.
 
 ### Picture of testing
 
-![Image of studying](https://images.app.goo.gl/VXaoHr3kvo4NGJ9T7)
+![Image of studying](https://i.pinimg.com/600x315/9b/06/32/9b0632fae28b65a1d42c0b03044ca33c.jpg)
 
 #### Quiet study sessions
 
